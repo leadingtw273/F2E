@@ -5,8 +5,6 @@
 
 ### [九週達成證書](https://www.thef2e.com/Certificate/-LDy0zAdTX3yBAZYEIIh)
 
-![證書連結不見了QQ](https://www.thef2e.com/Certificate/-LDy0zAdTX3yBAZYEIIh)
-
 ### 練習項目:
 
 我把我有所接觸、練習、了解的內容都條列式顯示出來，不一定都很熟悉，但至少名詞的了解是有的。
